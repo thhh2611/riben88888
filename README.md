@@ -20,4 +20,4 @@
 
 隐私保护到位，全站启用无痕浏览与加密传输机制，看片安心又自由。现在点击任意入口，解锁你专属的无码日本AV世界。
 
-<span style="display:none;">[Canonical link]  (  ）</span> 
+<span style="display:none;">[Canonical link]  ( https://github.com/thhh2611/riben88888 ）</span> 
